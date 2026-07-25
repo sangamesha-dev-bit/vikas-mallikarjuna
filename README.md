@@ -1,5 +1,5 @@
 # 💫 About Me:
---> I am a student<br><br>--> future software developer<br><br>--> Krishna Placement-Oriented And Internship (course)<br><br>--> Never Give Up  
+--><br><br>-->software developer<br><br>--> Krishna Placement-Oriented And Internship (course)<br><br>--> Never Give Up  
 
 
 ## 🌐 Socials:
