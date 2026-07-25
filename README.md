@@ -1,5 +1,5 @@
 # 💫 About Me:
---><br><br>-->software developer<br><br>--> Krishna Placement-Oriented And Internship (course)<br><br>--> Never Give Up  
+-->Vikas mallikarjuna<br><br>-->software developer<br><br>--> Krishna Placement-Oriented And Internship (course)<br><br>--> Never Give Up  
 
 
 ## 🌐 Socials:
